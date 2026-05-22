@@ -130,4 +130,4 @@ Based on this analysis, a lending institution should:
 
 **[Your Name]** — M.S. Data Science candidate | 10 years in banking & finance
 
-[Portfolio](https://yoursite.com) · [LinkedIn](https://linkedin.com/in/yourusername) · [Email](mailto:your.email@example.com)
+[Portfolio](https://yoursite.com) · [LinkedIn](www.linkedin.com/in/shequita-s-42aab7349) · [Email](stevenson.shequita@gmail.com)
